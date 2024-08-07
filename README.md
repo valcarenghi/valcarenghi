@@ -1,16 +1,13 @@
-## Hi there 👋
+## Hi there 👋 meu nome e *amanda*
 
-<!--
-**valcarenghi/valcarenghi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- eu amo meu *namorado* 💙💍
+- meu cantor favorito e o mc kevin, o hugo e guilherme
+- gosto de assistir series em horas vagas
+- tenho 16 anos
+- ganhei minha aliança dia 3 de agosto
+- meu instagram e valcarenghi_amanda0
+- gosto bastante de doce
+- amo fazer comida, quando estou com vontade
+- ja me mudei de casa mais de 20 vezes
+- minha cor favoritae azul roxa e preta
+- torco pro grêmio
